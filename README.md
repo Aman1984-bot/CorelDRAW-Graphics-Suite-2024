@@ -1,4 +1,4 @@
-# CorelDRAW-Graphics-Suite-2024
+# CorelDRAW-Graphics-Suite-2024-Crack-24.5.0.731-License-Key
 
 **CorelDRAW Graphics Suite 2024 Crack** is more than just a program. At its heart is CorelDRAW 2024 Crack, a powerful vector drawing tool with page layout features that are often overlooked compared to its Adobe competitors. What makes CorelDRAW stand out is its steady improvements with each version, adding new features without overwhelming users with too many changes all at once.
 
